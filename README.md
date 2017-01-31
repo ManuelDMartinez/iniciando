@@ -1,0 +1,2 @@
+# iniciando
+mis ideas propias
